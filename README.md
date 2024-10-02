@@ -2,7 +2,7 @@
 - 👀 I’m interested in... blockchain technology.
 - 🌱 I’m currently learning... Web2. Front end.
 - 💞️ I’m looking to collaborate on... building websites as a beginner.
-- 📫 How to reach me ... gbunchiorjossy@gmail.com, on X dev_gbunchior.
+- 📫 How to reach me ... gbunchiorjossy95@gmail.com, on X dev_gbunchior.
 - 😄 Pronouns: ...Junior, Don Jay.
 - ⚡ Fun fact: ... tech is wild and not for the weak!
 
